@@ -3,7 +3,8 @@ koka kola
 kuku
 hhhhhhhhhhhhhhhhhh45654545
 hfcjfcvkuygbktcdkyghvbh.jkl
-88888888888888888888888888888888
-99999999999
-11111
+//////////
+\\\\\\\\\\
+//////.
+\\\\\\\\\\\\\\\\
 
